@@ -1,0 +1,1 @@
+# sem.cx_for_turizm1
